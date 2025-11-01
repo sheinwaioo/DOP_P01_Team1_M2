@@ -8,5 +8,5 @@ The sound of rain falling against the window can be strangely comforting. It bri
 
 
 
-When the world grows quiet and the sky turns silver, it’s easy to feel small beneath the endless stars. Yet even in the stillness, life hums softly — in the breeze that brushes your skin, in the heartbeat that refuses to fade, in the hope that lingers like morning light. Every calm night is a promise that dawn will return, carrying warmth for those who dare to keep dreaming - Shein
+When the world grows quiet and the sky turns silver, it’s easy to feel small beneath the endless stars. Yet even in the stillness, life hums softly — in the breeze that brushes your skin, in the heartbeat that refuses to fade, in the hope that lingers like morning light. Every calm night is a promise that dawn will return, carrying warmth for those who keep dreaming - Shein
 
